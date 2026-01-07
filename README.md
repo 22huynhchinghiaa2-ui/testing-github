@@ -1,1 +1,1 @@
-con ga
+con ga on my computer
